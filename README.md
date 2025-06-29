@@ -77,7 +77,7 @@ You’ll usually find me:
 
 ## 📫 Contact Me
 
-- [LinkedIn](https://www.linkedin.com/in/shreyachidambaram)  
+- [LinkedIn](https://www.linkedin.com/in/chidambaramshreya/)  
 - [Email](mailto:shreyachidambaram@gmail.com)  
 
 ---
