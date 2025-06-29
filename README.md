@@ -1,9 +1,7 @@
 # 👋 Hi, I’m Shreya Chidambaram
 
-🎯 **Product & Data Analyst** | Cal Poly MSBA | Storytelling with Strategy & Systems Thinking  
-💼 Currently seeking roles in **Product Managemnt**, **Business Intelligence**, or **Strategy & Operations**
-
-I use data, empathy, and systems design to help teams make smarter, faster, and more human decisions.
+🎯 **Product & Business Analyst** | Cal Poly MSBA | Systems Thinker with a Storytelling Mindset  
+💼 Exploring roles in **Product Management**, **Business Intelligence**, and **Strategy & Operations**
 
 ---
 
