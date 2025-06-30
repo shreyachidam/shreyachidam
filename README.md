@@ -93,9 +93,9 @@ Notion | Jira | Confluence
 
 ---
 
-## 🎨 Outside of Work
+## ⚡ Fun Facts
 
-I love experimenting with global recipes, painting dreamy fantasy landscapes, and dancing to anything with a good beat — especially Bollywood and hip-hop.
+I love learning new recipes from different cultures, painting fantasy landscapes, and dancing to anything with a good beat (especially Bollywood).
 
 ---
 
